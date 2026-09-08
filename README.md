@@ -1,0 +1,1 @@
+# Siegfried-Kracauer-List
